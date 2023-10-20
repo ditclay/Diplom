@@ -12,5 +12,8 @@
 ![image](https://github.com/ditclay/Diplom/assets/59621706/1d2e3354-e624-425f-bd54-e786ba5e21dd)
 ![image](https://github.com/ditclay/Diplom/assets/59621706/e4bd6514-ad90-409f-a3ec-77a23f978531)
 
+# Ссылка на готовый проектный продукт
+https://yandex.ru/games/app/255986?lang=ru
+
 
 
