@@ -16,4 +16,4 @@
 https://yandex.ru/games/app/255986?lang=ru
 
 
-https://docs.google.com/document/d/1HOHJ1-ddkIIwI0ZWhG2uFizDeCVRn7gmJVd-LKzVXfo/edit?usp=sharing
+https://docs.google.com/document/d/1QaaDi4KRsu27cDKH-Cw0QAu-uZsnmgyvKBjBW4IvqF4/edit?usp=sharing
