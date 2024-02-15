@@ -17,3 +17,7 @@ https://yandex.ru/games/app/255986?lang=ru
 
 
 https://docs.google.com/document/d/1QaaDi4KRsu27cDKH-Cw0QAu-uZsnmgyvKBjBW4IvqF4/edit?usp=sharing
+
+# Test build
+https://drive.google.com/file/d/12TEwVWsHbYvIs_l8jJthKk7XQbXJutMw/view?usp=sharing
+
